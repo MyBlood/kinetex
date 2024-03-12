@@ -1,3 +1,4 @@
+![Kineex Network](https://sun9-25.userapi.com/impg/thQEhDcbDevhlXwjsCouULRfP3sx5SUnuBpUug/hYlkwQx8k6k.jpg "Собака смотрит влево")
 [Kinetex](https://kinetex.io/) is a modern service that offers fast and secure exchange of cryptocurrency for the most popular fiat currencies. We work with the most reliable and time-tested cryptocurrencies such as Bitcoin, Ethereum, Ripple and many others.
 Our platform was created with all modern security requirements and protection of user funds in mind. We use the most advanced encryption and authentication technologies to ensure that your funds and personal data are safe.
 In addition, we offer our clients the lowest commissions for cryptocurrency exchange transactions. Thanks to this, you will be able to save money on exchange and get the maximum benefit from using our service.
